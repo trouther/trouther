@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @trouther
+- 👀 I’m interested in Jazz and IT.
